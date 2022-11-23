@@ -22,7 +22,7 @@ Out of the box SEO and social media marketing make your website ready-to-go for 
 ### Characteristics
 I will provide the logo, color palette, and the content for the website.
 
-The template is also very easy to customize and you can change the colors, fonts, images, and text with just a few clicks of your mouse.
+The template is also very easy to customize and you can change the colors, fonts, images, and text with just a few clicks.
 
 - SEO Friendly
 - Easy to customize
